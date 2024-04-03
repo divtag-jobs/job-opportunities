@@ -9,7 +9,7 @@ Onze focus ligt op het automatiseren en digitaliseren van diverse bedrijfsproces
 
 
 ## Voordelen
-- Een goed salaris, afgestemd op jouw ervaring en niveau, afgestemd op jouw e
+- Een goed salaris, afgestemd op jouw ervaring en niveau, afgestemd op jouw ervaring
 - Goede pensioenregeling
 - Reiskostenvergoeding
 - Laptop of BYOD vergoeding
